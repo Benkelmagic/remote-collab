@@ -14,7 +14,7 @@ Those shoes... enough said!
 
 ![Moose going through snow](https://media.giphy.com/media/OK5bgtzJ5u2Fa/giphy.gif)
 
-Moose running through snow.
+Moose running through snow. 
 
 ## Otters
 
@@ -51,6 +51,12 @@ Mama Bear and Baby Bear cuddle.
 ![Cat musicians](https://media.giphy.com/media/t7MWRoExDRF72/giphy.gif)
 
 Girl, put your records on.
+
+---
+
+![Jumpy Kitten](https://media.giphy.com/media/12bjQ7uASAaCKk/giphy.gif)
+
+_jump jump jump!_
 
 ## Sloths
 
