@@ -52,6 +52,12 @@ Mama Bear and Baby Bear cuddle.
 
 Girl, put your records on.
 
+---
+
+![Jumpy Kitten](https://media.giphy.com/media/12bjQ7uASAaCKk/giphy.gif)
+
+_jump jump jump!_
+
 ## Sloths
 
 ![Sleepy sloths](https://www.pbh2.com/wordpress/wp-content/uploads/2012/10/funniest-animal-gifs-sloth-chilling.gif)
